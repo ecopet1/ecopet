@@ -1,2 +1,2 @@
 # ecopet
-https://ecopetaykwbyt.zid.store/
+https://ecopet.store
